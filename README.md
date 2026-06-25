@@ -1,4 +1,4 @@
-GRC Portfolio
+# GRC Portfolio
 
 This repository contains my Governance, Risk, and Compliance (GRC) learning journey.
 
