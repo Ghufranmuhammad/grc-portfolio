@@ -1,6 +1,6 @@
 GUFRAN MUHAMMAD IMRAN
 
-Abu Dhabi, UAE | +971 50 271 7838 | muhammadghufrankhan1@gmail.com | https://www.linkedin.com/in/muhammad | https://github.com/Ghufranmuhammad
+Abu Dhabi, UAE | +971 50 271 7838 | muhammadghufrankhan1@gmail.com | www.linkedin.com/in/muhammad-ghufran-a4363b231 | https://github.com/Ghufranmuhammad
 
 PROFESSIONAL SUMMARY
 
